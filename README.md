@@ -1,2 +1,0 @@
-# vilmaroliveira
-README de Perfil
